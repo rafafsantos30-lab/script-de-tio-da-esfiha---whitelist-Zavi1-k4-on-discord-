@@ -1,0 +1,1 @@
+# script-de-tio-da-esfiha---whitelist-Zavi1-k4-on-discord-
